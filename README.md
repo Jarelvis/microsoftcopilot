@@ -40,7 +40,3 @@ Noah e Maria, agora com mais recursos e conhecimento, começam a desenvolver pro
 
 ## Estilo
 A história em quadrinhos será desenhada no estilo anime japonês, com traços detalhados e expressivos. As cores serão vibrantes para destacar a energia e a esperança dos personagens.
-
----
-
-Espero que isso ajude! Se precisar de mais alguma coisa, é só avisar. 😊
